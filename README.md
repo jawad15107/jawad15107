@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jawad15107
+- 👀 I’m interested in learning technical skills
+- 🌱 I’m currently learning Data Analysis
+- 📫 You can reach me at Linkedinn at jawad Ali
